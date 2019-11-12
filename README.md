@@ -1,2 +1,2 @@
 # psychic-invention
-I am a very rare white female who is try different thing to see ifvi like
+I am a very rare white female who is try different thing to
